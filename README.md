@@ -9,4 +9,4 @@ Meu nome é Eduarda Ventura
 ### Você entra em contato comigo por 📫
 
 eduarda.ventura26@escola.pr.gov.br
-https://tenor.com/pt-BR/view/farheen-fernheen-fern-kitty-black-cat-gif-9719620156620957146
+(https://tenor.com/pt-BR/view/farheen-fernheen-fern-kitty-black-cat-gif-9719620156620957146)
